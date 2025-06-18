@@ -1,0 +1,1 @@
+# Teste_Software_2025_Osanyo_Nascimento_Davi_Bomfim
